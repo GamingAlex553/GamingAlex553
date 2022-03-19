@@ -1,4 +1,4 @@
-# GamingAlex553-GamingAlex553
+# GamingAlex553
 Hi!
 Contact me here to become an administrator: alexcostan553@gmail.com.
 
